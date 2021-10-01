@@ -2,7 +2,9 @@
 
 
 ![](https://github.com/saxenaishii/BOWIE/blob/master/assets/images/B1.png)
+
 BOT CODE : 32713697
+
 BOWIE - WELCOME TO THE LGBTQ+ MOVEMENT
 
 OVERVIEW: BOWIE aims to create a safe space, where everyone is celebrated for who they are. Join us in this journey and connect with the community you belong to!
